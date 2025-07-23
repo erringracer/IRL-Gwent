@@ -76,4 +76,4 @@ _Witcher family in modern times - artwork by [Maria Lonyuk](https://www.reddit.c
 
 ---
 
-Присоединяйся к [нашему сообществу](https://t.me/gwentcult)!
+Присоединяйся к [нашему сообществу]([https://t.me/gwentcult](https://t.me/+f66s1r_Im8cxNzYy))!
